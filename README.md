@@ -1,5 +1,5 @@
 # 💫 About Me:
-I have recently complete my MCA
+I have recently completed my MCA
 
 
 ## 🌐 Socials:
